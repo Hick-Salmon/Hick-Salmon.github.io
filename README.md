@@ -1,1 +1,1 @@
-[点击访问](https://hick‑salmon.github.io/)
+[点击访问](https://hick-salmon.github.io/)
